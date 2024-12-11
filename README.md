@@ -1,5 +1,5 @@
 ## Hi, I’m Atmaja!
-
+https://www.linkedin.com/in/atmaja-patil/
 I’m actively seeking internship opportunities in product management, AI/ML, or engineering, where I can apply my skills and knowledge to real-world challenges. I'm currently pursuing a degree in Biological Systems Engineering at UC Davis, with a strong passion for product management, AI/ML, and health & ag tech. 
 
 I’m driven by the goal of leveraging technology to develop solutions addressing our biggest health and environmental issues, particularly the global food crisis and healthcare infrastructure needs. Alongside technical interests, I have a deep passion for business. I currently operate and co-own a food business and work at the UC Davis Startup Center, gaining hands-on experience in entrepreneurship and leadership.
